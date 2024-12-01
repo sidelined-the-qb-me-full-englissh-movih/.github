@@ -1,4 +1,4 @@
-# [.𝚆𝙰𝚃𝙲𝙷.]𝚏𝚞𝚕𝚕— SIDELINED: THE QB AND ME(.𝙵𝚞𝚕𝚕𝙼𝚘𝚟𝚒𝚎.) 𝙵𝚛𝚎𝚎 𝙾𝚗𝚕𝚒𝚗𝚎 𝚘𝚗 𝟷𝟸𝟹𝙼𝚘𝚟𝚒𝚎𝚜
+# [.𝚆𝙰𝚃𝙲𝙷.]𝚏𝚞𝚕𝚕— SIDELINED: THE QB AND ME(.𝙵𝚞𝚕𝚕𝙼𝚘𝚟𝚒𝚎.)F𝚒lMyz𝚒lla Dow𝚗load Fr𝚎e 7𝟸0p, 4𝟾0p 𝙰𝚗𝚍 10𝟾0p
 
 𝟸1 𝚂𝚎𝚌 𝚊𝚐𝚘 - 𝚂𝚝𝚒𝚕𝚕 𝙽𝚘𝚠 Sidelined: The QB and Me 𝚊𝚛𝚎 𝚘𝚙𝚝𝚒𝚘𝚗𝚜 𝚏𝚘𝚛 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍𝚒𝚗𝚐 𝚘𝚛 𝚆𝚊𝚝𝚌𝚑𝚒𝚗𝚐 Sidelined: The QB and Me 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚝𝚑𝚎 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎 𝙾𝚗𝚕𝚒𝚗𝚎 𝚏𝚘𝚛 𝙵𝚛𝚎𝚎 𝚘𝚗 𝟷𝟸𝟹𝙼𝚘𝚟𝚒𝚎𝚜 & 𝚁𝚎𝚍𝚍𝙸𝚝, 𝚒𝚗𝚌𝚕𝚞𝚍𝚒𝚗𝚐 Sidelined: The QB and Me 𝚝𝚘 𝚆𝚊𝚝𝚌𝚑 Sidelined: The QB and Me 𝚕𝚊𝚝𝚎𝚜𝚝 𝚜𝚞𝚙𝚎𝚛𝚗𝚊𝚝𝚞𝚛𝚊𝚕 𝚌𝚘𝚖𝚎𝚍𝚢 𝚑𝚘𝚛𝚛𝚘𝚛 𝙼𝚘𝚟𝚒𝚎 Sidelined: The QB and Me 𝚊𝚝 𝚑𝚘𝚖𝚎. Sidelined: The QB and Me 𝟸𝟶𝟸𝟺 𝚊𝚟𝚊𝚒𝚕𝚊𝚋𝚕𝚎 𝚝𝚘 𝚂𝚝𝚛𝚎𝚊𝙼? 𝙸𝚜 𝚆𝚊𝚝𝚌𝚑𝚒𝚗𝚐 Sidelined: The QB and Me 𝚘𝚗 𝙿𝚎𝚊𝚌𝚘𝚌𝚔, 𝙷𝙱𝙾 𝙼𝚊𝚡, 𝙽𝚎𝚝𝚏𝚕𝚒𝚡 𝚘𝚛 𝙳𝚒𝚜𝚗𝚎𝚢 𝙿𝚕𝚞𝚜? 𝚈𝚎𝚜, 𝚠𝚎 𝚑𝚊𝚟𝚎 𝚏𝚘𝚞𝚗𝚍 𝚊𝚗 𝚊𝚞𝚝𝚑𝚎𝚗𝚝𝚒𝚌 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚘𝚙𝚝𝚒𝚘𝚗/𝚜𝚎𝚛𝚟𝚒𝚌𝚎.
 
